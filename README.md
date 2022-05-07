@@ -1,2 +1,2 @@
-# photography
+4BIS Project
 photography enthusiasts
